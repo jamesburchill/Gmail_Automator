@@ -16,6 +16,4 @@ Would love to hear what you’ve been up to as well—just hit reply and let me 
 James C. Burchill
 https://jamesburchill.com
 
-P.S. If you remember me from my networking events, Microlearning Mastery is kind of like that—just delivered straight to your inbox with insights you can use every day. Hope to see you inside!Thank you.
-
 """
